@@ -1,4 +1,4 @@
-# 
+# Audacity for macOS best Effect: EQ & real-time-effects offers the most advanced Audacity for macOS effect, with EQ and real-time-effects. Ideal for professional video editors and
 
 
 
